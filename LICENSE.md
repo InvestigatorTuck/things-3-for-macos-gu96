@@ -1,4 +1,4 @@
-
+Things 3 for macOS custom Macro - collaboration and custom shortcuts offers the most advanced Things 3 for macOS macro, with collaboration and custom shortcuts. Ideal for
 
 
 
